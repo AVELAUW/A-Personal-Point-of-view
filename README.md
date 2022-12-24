@@ -1,2 +1,2 @@
 # A-Personal-Point-of-view
-https://badcatn.github.io/nick2.0/
+https://avelauw.github.io/A-Personal-Point-of-view/
